@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm Sahli Saha
+# Hi there! 👋 I'm Saheli Saha
 
 ## 🚀 About Me
 
